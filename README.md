@@ -1,2 +1,0 @@
-# xqdl
-trabalho do xesque
